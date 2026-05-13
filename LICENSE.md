@@ -1,4 +1,4 @@
-# 
+# Get the ultimate birdeye sniper bot with automatic birdeye sniper bot | contract-verification + meme-coin-scanning. Featuring contract-verification and meme-coin-scanning, it's
 
 
 
